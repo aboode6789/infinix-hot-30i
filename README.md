@@ -1,0 +1,1 @@
+# infinix-hot-30i
